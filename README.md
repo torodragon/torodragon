@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @torodragon
+- 👀 I’m interested in Marketing, Branding, Blockchain, Crypto, NFTs
+- 🌱 I’m currently learning about Blockchain, Crypto and NFTs
+- 💞️ I’m looking to collaborate on anything that helps me learn more about GitHub
+- 📫 How to reach me @torodragon
